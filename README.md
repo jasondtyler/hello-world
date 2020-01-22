@@ -1,2 +1,4 @@
 # hello-world
-its repository time
+
+hey gamers
+i am a certified gamer in the university of gamer awimbowe  
